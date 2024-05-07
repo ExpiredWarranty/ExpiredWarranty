@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning everything possible
 - 💞️ I’m looking to collaborate on something cool
-- 📫 How to reach me discord expiredwaranty
+- 📫 How to reach me on discord - expiredwaranty
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im really good with web devolopment
 
